@@ -3,7 +3,7 @@
 
 Ping me on discord here: **umpornsoeau#5466**
 
-or leave a message here: **https://discord.gg/UMDw7sp5wr**
+
 
 
 
