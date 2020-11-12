@@ -1,6 +1,8 @@
 ### Hello, there 👋 I'm Ump 
 
 
+Ping me on discord here: umpornsoeau#5466
+
 
 [![Top Langs](https://github-readme-stats.vercel.app/api/top-langs/?username=umpornsoeau&layout=compact&theme=synthwave)](https://github.com/umpornsoeau/)
 
