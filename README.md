@@ -1,7 +1,7 @@
 ### Hello, there 👋 I'm Ump 
 
 
-Ping me on discord here: umpornsoeau#5466 or join my empty room if you like https://discord.gg/UMDw7sp5wr 
+Ping me on discord here: **umpornsoeau#5466** or join my empty room if you like **https://discord.gg/UMDw7sp5wr**
 
 
 
